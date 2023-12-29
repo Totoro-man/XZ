@@ -1,1 +1,0 @@
-XZ cho tyt pisat
